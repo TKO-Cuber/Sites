@@ -14,3 +14,8 @@ E-BIG
 R-DICKHOLE
 
 THINK BEFORE YOU TKO CUBE
+
+
+hey palmer it's me lmao
+
+i can confirm you got my username right.
